@@ -11,7 +11,7 @@ When roleplaying, I use "quotations" for speech, *asterisks* for actions, and (p
 
 When it comes to ships, my favorites to roleplay are Alphys X Undyne, Papyrus X Mettaton, Grillby X Sans, c!Quackity X c!Charlie, and c!Tommy X c!Purpled, and c!Tommy X c!Tubbo. If you want to roleplay another ship, just ask!
 
-I am very uncomfortable with roleplaying any ships that are Minor X Adult or Incestual. I don't care if you ship those things as long as you don't mention it around me, I am not comfortable with those things!
+I am very uncomfortable with roleplaying any ships that are Minor X Adult or Incestual.
 
 Also, if you genuinely care that I ship something that's completely harmless, I will be laughing at you. (Talking to THOSE people. No, there's nothing wrong with c!Tommy X c!Tubbo lmfao.)
 
