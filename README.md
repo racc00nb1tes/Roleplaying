@@ -1,5 +1,5 @@
 # Roleplaying
-Hi! I'm Ash, but you can also call me Kylo or Ava. I go by any/all pronouns. I'm a minor, but I don't mind interacting and roleplaying with adults as long as you aren't creepy about it. I'm usually in the Undertale area or the Dream SMP area, and these are the only two fandoms I roleplay for at the moment. This will most likely change in the future.
+I'm a minor, but I don't mind roleplaying with adults as long as you aren't creepy about it. I'm usually in the Undertale area or the Dream SMP area, and these are the only two fandoms I roleplay for at the moment. This will most likely change in the future.
 
 Characters I usually roleplay as for Undertale are Papyrus, Alphys, Napstablook, and Frisk. The other characters I have made for Undertale are Chara, Sans, Grillby, Mad Mew Mew, Temmie, Toriel, and Undyne.
 
