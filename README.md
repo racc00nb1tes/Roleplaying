@@ -3,7 +3,7 @@ I'm a minor, but I don't mind roleplaying with adults as long as you aren't cree
 
 Characters I usually roleplay as for Undertale are Papyrus, Alphys, Napstablook, and Frisk. The other characters I have made for Undertale are Chara, Sans, Grillby, Mad Mew Mew, Temmie, Toriel, and Undyne.
 
-Characters I usually roleplay as for Dream SMP are c!Charlie and c!Tommy. The other characters I have made for Dream SMP are c!Quackity, c!Niki, c!Purpled, and c!Hannah.
+Characters I usually roleplay as for Dream SMP are c!Charlie and c!Tommy. The other characters I have made for Dream SMP are c!Quackity, c!Niki, c!Purpled, and c!Hannah, as long as Tommy's moth Clementine and his spider Shroud.
 
 I can roleplay as another character then the ones I frequent, but I most likely won't be as good at it.
 
