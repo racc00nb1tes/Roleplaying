@@ -9,6 +9,8 @@ I can roleplay as another character then the ones I frequent, but I most likely 
 
 When roleplaying, I use "quotations" for speech, *asterisks* for actions, and (parentheses) for Out Of Character thoughts or speech. I use the /think for In Character thoughts. Messages in /think are not messages you're supposed to respond to. I do not follow these rules when I'm not roleplaying!
 
+IC means In Character, when I have it in my name I will be responding In Character for the most part.
+
 When it comes to ships, my favorites to roleplay are Alphys X Undyne, Papyrus X Mettaton, Grillby X Sans, c!Quackity X c!Charlie, and c!Tommy X c!Purpled, and c!Tommy X c!Tubbo. If you want to roleplay another ship, just ask!
 
 I am very uncomfortable with roleplaying any ships that are Minor X Adult or Incestual.
