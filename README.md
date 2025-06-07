@@ -16,5 +16,3 @@ I am very uncomfortable with roleplaying any ships that are Minor X Adult or Inc
 Also, if you genuinely care that I ship something that's completely harmless, I will be laughing at you. (Talking to THOSE people. No, there's nothing wrong with c!Tommy X c!Tubbo lmfao.)
 
 I do not have a DNI! Personally, I find them a bit silly, because people can literally just lie. However, if you make me uncomfortable, I will block you. I usually will tell people that they're making me uncomfortable just in case they're willing to correct their behavior, but if they don't they get blocked.
-
-I will also roleplay on Discord! My Discord username is raccoonb1tes. (including the period!)
